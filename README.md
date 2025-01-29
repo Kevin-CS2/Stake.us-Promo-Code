@@ -26,6 +26,8 @@ The Stake.us promo code is a unique code that players can enter on the platform 
 | HellagoodUSA | Claim 250,000 GOLD COINS
 | HellaNew | Get 25 Stake Cash |
 
+![image](https://csgototem.com/wp-content/uploads/2021/06/stake-us-promo.webp)
+
 ## **How to Get a Bonus on Stake.us?**
 
 To claim a bonus on Stake.us, simply follow these easy steps:
